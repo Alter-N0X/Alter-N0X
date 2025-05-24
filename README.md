@@ -1,4 +1,4 @@
-🦇 AlternoX | 🕯️ Hardware Enthusiast | 🛠️ Penetration Tester | ☠️ CTF Player
+🦇 AlternoX | 🛠️ Hardware Enthusiast | 🕯️ Penetration Tester | ☠️ CTF Player
 
 #!/usr/bin/env voidwalker
 
