@@ -4,9 +4,9 @@
 
 I put the ‘dark’ in darknet and the ‘404’ in social life.
 
-💀 Breaking things is a love language.
+🖤 Breaking things is a love language.
 
-🖤 I read crash logs like poetry and speak in payloads whispered through the dark net.
+💀 I read crash logs and whisper payloads.
 
 ⚰️ chmod 000 on emotions.
 
